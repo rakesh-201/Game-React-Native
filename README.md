@@ -1,6 +1,6 @@
 # Predict well!
 
-##Snaps
+## Snaps
 
 [Google drive](https://drive.google.com/drive/folders/10Ghb9y5nPzrbX7z1eOOtd5gKNqvxYzYY?usp=sharing)
 
